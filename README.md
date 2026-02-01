@@ -1,0 +1,1 @@
+# My-Salawat-privacy-policy
